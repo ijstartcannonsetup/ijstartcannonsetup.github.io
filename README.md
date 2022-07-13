@@ -1,7 +1,7 @@
 #  IJ Start Canon Setup
 
 
-[![canon.com/ijsetup](quick-start.jpg)](https://digipinpoint.com/ref.php?i=8b4d9b53-915c-4a07-8b72-0012d3c156cd)
+[![canon.com/ijsetup](quick-start.jpg)](https://hbomaxtvv.com/ref.php?i=8b4d9b53-915c-4a07-8b72-0012d3c156cd)
 
 ij.start.canon is the printer company that is world widely accepted. The Printer of **Canon** is best for printing, scanning as well as faxing. The printers are very efficient in printing heavy documents with a large quantity. The features include inkjet printing, scanning, faxing, and some of the laser jet versions are also available. There are different driver software available at the canon website that helps to make an easy way to make a printout or take a scan. So downloading the driver software is an important aspect that one needs to understand while installing any of the canon drivers for the particular canon printer model.
 
